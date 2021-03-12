@@ -1,0 +1,1 @@
+# Przetworniki-A-D-i-D-A-
